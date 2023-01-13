@@ -2,9 +2,9 @@
 
 [aurelienh.fr](https://aurelienh.fr)
 
-## MAIL
+## WORK
 
-[aurelienhadoux@gmail.com](mailto:aurelienhadoux@gmail.com)  
+I’m currently working at **Oxwork** & [La Manu](https://lamanu.fr/)
 
 ## SOCIAL
 
