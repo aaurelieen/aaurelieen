@@ -4,7 +4,7 @@
 
 ## WORK
 
-I’m currently working at **Oxwork** & [La Manu](https://lamanu.fr/)
+I’m currently working at **Oxwork**
 
 ## SOCIAL
 
