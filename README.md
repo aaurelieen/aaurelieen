@@ -2,10 +2,6 @@
 
 [aurelienh.fr](https://aurelienh.fr)
 
-## WORK
-
-I’m currently working at **Oxwork**
-
 ## SOCIAL
 
 [Instagram](https://www.instagram.com/aaurelieen)  
